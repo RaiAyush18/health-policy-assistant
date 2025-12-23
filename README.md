@@ -230,7 +230,7 @@ Always consult licensed insurance professionals for policy-related decisions.
 ## 📧 Contact
 
 **Project by:** [Ayush Rai]  
-**LinkedIn:** [[Your Profile](https://www.linkedin.com/in/ayush-rai-22b38b257/)]  
+**LinkedIn:** [[Ayush Rai](https://www.linkedin.com/in/ayush-rai-22b38b257/)]  
 **Email:** [ayushalokrai@gmail.com]
 
 
